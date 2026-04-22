@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CULE800329HDFRYD09
+CULE800329HDFRYD09
